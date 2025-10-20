@@ -1,4 +1,4 @@
-# Hi there, I'm Marlvillarreal! 👋
+# Hi there, I'm MarkVillarreal! 👋
 
 ![Banner Image](https://ih1.redbubble.net/image.5171963254.2981/flat,750x,075,f-pad,750x1000,f8f8f8.jpg)
 
